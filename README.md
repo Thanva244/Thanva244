@@ -9,6 +9,7 @@
 <!---
 Thanva244/Thanva244 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
+GENAI-bdmyu3v3bpbyfdwz1svru9xf
 --->
 <@Gmail unlock version frull key id thanva04122532@gmail.com
 ADD Money to bank account SCB thailand number 4078670710>
